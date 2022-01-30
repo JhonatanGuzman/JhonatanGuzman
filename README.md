@@ -1,2 +1,2 @@
-![alt text](https://w.wallhaven.cc/full/e7/wallhaven-e7ek7k.jpg)
-Jhonatan Stiven Guzman Olaya
+![alt text](https://miro.medium.com/max/1400/0*U1rexBpDZQL11w_q)
+## **Hola, soy Jhonatan Stiven**
